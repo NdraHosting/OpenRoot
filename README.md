@@ -36,4 +36,4 @@ Jika Anda Masih Kebingungan Memahami Penjelasan Kami, Anda Bisa melihat Tutorial
 Semoga Bermanfaat
 
 <h1 align="center">Peringatan</h1>
-Script Ini Tidak Untuk Di Jual Belikan. Jika Mau Reupload Izin dulu ke Ndra Hosting Dengan Dm Melalui IG [xyn.dra_](https:/Instagram.com/xyn.dra_/)<br>
+Script Ini Tidak Untuk Di Jual Belikan. Jika Mau Reupload Izin dulu ke Ndra Hosting Dengan Dm Melalui IG [Izin](https://instagram.com/cindra_turu/)<br>
